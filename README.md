@@ -17,7 +17,7 @@
 ---
 
 ## 🧱 Projects
-
+(In progress, will update soon!!)
 
 ---
 
